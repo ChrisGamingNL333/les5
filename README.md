@@ -17,4 +17,4 @@
 6. Draai de pannenkoek om en bak de pannenkoek nog ongeveer 1-2 minuten op de andere kant.
 7. Leg de pannenkoek op een bord en dek het bord af met een grote deksel.
 8. Herhaal stap 3 tot 7 met de andere pannenkoeken.
-Recept gevonden (en een beetje aangepast) op [Deze Website](https://www.lekkerensimpel.com/basisrecept-voor-pannenkoeken/)
+###### Recept gevonden (en een beetje aangepast) op [Deze Website](https://www.lekkerensimpel.com/basisrecept-voor-pannenkoeken/)
